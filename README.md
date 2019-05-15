@@ -2,7 +2,7 @@
 
 <a href="https://sh.edupool.de/search?func=playlist&standort=IQSH&list=3881">Video explicativo</a> sobre el uso de estar + gerundio <br>
 
-<a href="https://hirsch.next-cloud.org/index.php/s/fjfbkAdwgeYQ9pt">Hoja explicativa</a> sobre el uso de estar + gerundio <br>
+<a href="https://hirsch.next-cloud.org/index.php/s/im4XW3nYwmcQqW3">Hoja explicativa</a> sobre el uso de estar + gerundio <br>
 
 
 Ejercicios para practicar el uso de estar + gerundio.
